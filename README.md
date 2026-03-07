@@ -5,9 +5,12 @@ hi!! very boring site; I only have this available for Pony town, so yes you must
 
 
 For more info, you can go to my strawpage!! A lot of the info here is literally the same as on there.
+
 { I am okay with c+h !!! }
+
 Just for caution; 
 plz plz.. I am not that very social!! so bare w/ me. You may call me bea, whatever you want ! I am 16 !!
+
 I am not active all the time on Ponytown, usually I just come on to try and make ponies lol
 ______________________________________________________________________________________________________________
 
@@ -18,11 +21,11 @@ ________________________________________________________________________________
 * If anyone you might not know call me wodahs, that is because the name I still go by and had for so long is in fact from a character of funa's, (I ws young when I found out about funa, -I've come to learn later on how bad they really are) but I've been having the means to change it. I just don't know what to change it to ~_~
 
   ______________________________________________________________________________________________________________
-  Ships...!:
+  Ships/interactions...!:
   
-  I don't care for shippings, as I don't really ship at all (YES THIS IS TERRIBlE.) but I do ship a few, just not openly ! (COMPLETELY SANE SHIPS I PROMISE..)
-  Do not expect me to roleplay. Yes I will sometimes act like a few characters I cosplay just cause, but I am not that great at rps. I'm sorry
-  I don't mind blatant flirting as a joke, just know that if I step out of boundary with you.. lett mee knowww...
+  * I don't mind shippings; if its like minor/adult, or other ones, I'm opposed to it. This goes for rarepairs too, though they are completely in my book ^_^ I forgot what I was meant to type next.
+  * Do not expect me to roleplay. Yes I will sometimes act like a few characters I cosplay just cause, but I am not that great at roleplays. I'm sorry
+  -  I don't mind blatant flirting as a joke, just know that if I step out of boundary with you.. lett mee knowww...
 
   So be as open as you want with me !!
   
