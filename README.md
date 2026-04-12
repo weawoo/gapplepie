@@ -9,7 +9,7 @@ For more info, you can go to my strawpage!! A lot of the info here is literally 
 { I am okay with c+h !!! }
 
 Just for caution; 
-plz plz.. I am not that very social!! so bare w/ me. You may call me bea, whatever you want ! I am 16 !!
+plz plz.. I am not that very social!! so bare w/ me. You may call me bea, whatever you want ! I am 17 !!
 
 I am not active all the time on Ponytown, usually I just come on to try and make ponies lol
 ______________________________________________________________________________________________________________
