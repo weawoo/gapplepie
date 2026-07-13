@@ -4,12 +4,12 @@ hi!! very boring site; I only have this available for Pony town, so yes you must
 ![gjj](https://github.com/user-attachments/assets/a3eccde7-3a88-43b4-a459-c8246ca5f94d)
 
 
-Plz if you wanna, leave me something on my strwpg or ata!! My strawpage's info shares the same thing from here, as well as my accounts of games that I play !!
+ My strawpage's info shares the same thing from here, as well as my accounts of games that I play
 
 { I am okay with c+h !!! }
 
 Just for caution; 
-plz plz.. I am not that very social!! so bare w/ me. You may call me bea, whatever you want ! I am 17 !!
+plz I am not that very social, so bare w/ me. I'm fine with nicknames! 17 !!
 
 I am not active all the time on Ponytown, usually I just come on to try and make ponies lol
 ______________________________________________________________________________________________________________
@@ -22,7 +22,7 @@ ________________________________________________________________________________
   ______________________________________________________________________________________________________________
   Ships/interactions...!:
   
-  * I don't mind shippings; This goes for rarepairs too, they are completely in my book ^_^ If it's something weird  I forgot what I was meant to type next.
+  * I don't mind shippings; This goes for rarepairs too, they are completely in my book ^_^ If it's something weird preferably keep it to yourself
     - if you ship something entirely different from what I do (though I don't normally openly say what I ship) IT IS OKAY !! I'LL FEAST
   * Do not expect me to roleplay. Yes I will sometimes act like a few characters I cosplay just cause, but I am not that great at roleplays. I'm sorry
   -  I don't mind blatant flirting as a joke, just know that if I step out of boundary with you.. lett mee knowww...I will do the same.... <3
