@@ -9,7 +9,7 @@ hi!! very boring site; I only have this available for Pony town, so yes you must
 { I am okay with c+h !!! }
 
 Just for caution; 
-plz I am not that very social, so bare w/ me. I'm fine with nicknames! 17 !!
+plz I am not that very social, so bare w/ me. I'm fine with nicknames!
 
 I am not active all the time on Ponytown, usually I just come on to try and make ponies lol
 ______________________________________________________________________________________________________________
