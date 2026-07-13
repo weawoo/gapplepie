@@ -23,7 +23,7 @@ ________________________________________________________________________________
   Ships/interactions...!:
   
   * I don't mind shippings; This goes for rarepairs too, they are completely in my book ^_^ If it's something weird preferably keep it to yourself
-    - if you ship something entirely different from what I do (though I don't normally openly say what I ship) IT IS OKAY !! I'LL FEAST
+    - if you ship something entirely different from what I do (though I don't normally openly say what I ship) IT IS OKAY !! I'LL ENJOY EITHER WAY
   * Do not expect me to roleplay. Yes I will sometimes act like a few characters I cosplay just cause, but I am not that great at roleplays. I'm sorry
   -  I don't mind blatant flirting as a joke, just know that if I step out of boundary with you.. lett mee knowww...I will do the same.... <3
 
