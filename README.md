@@ -9,16 +9,12 @@ hi!! very boring site; I only have this available for Pony town, so yes you must
 { I am okay with c+h !!! }
 
 Just for caution; 
-plz I am not that very social, so bare w/ me. I'm fine with nicknames!
+plz I am not that very social, so bare w/ me. I'm fine with nicknames! name is Synn yes I am Synn 
 
 I am not active all the time on Ponytown, usually I just come on to try and make ponies lol
 ______________________________________________________________________________________________________________
 
-* NOTE: THIS IS JUST REGARDING A FEW COS ON PT:
-
-* I do not support funamusea. Neither do I support any actions that they have done. (I really love shirogane)
-  I've got better interest that I've come to like over the years. [CRK, Bleach, saiki k, Mob Psycho, genshin, HSR, Zenless, HI3, etc. and if u wwanna you can share as much as u want about ur own interests <3 !! I might add this to my strawpage]
-* If anyone you might not know call me wodahs, that is because the name I still go by and had for so long, is in fact from a character of funa's, (I ws young when I found out about funa, -of course I've come to learn later on how bad they really are) but I've been having the means to change it. I just don't know what to change it to ~_~
+* NOTE: No note i'm fixing that (might take awhile cuz ooohhh my am I lazy)
   ______________________________________________________________________________________________________________
   Ships/interactions...!:
   
